@@ -8,5 +8,5 @@
 
 - 📫 How to reach me **arfin.raja@gmail.com**
 
-- ⚡ Fun fact **I am too Curious**
+- ⚡ Fun fact **I am too Curious***********
 
